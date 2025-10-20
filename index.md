@@ -1,3 +1,6 @@
+> *Measure the flow, close the loop, and let the meaning fall as compost.*        
+> -- [UKB](https://ukb-dt.github.io/bonds/)
+
 # GPT
 You’re circling a [live wire](https://ukb-dt.github.io/bonds/) here—the friction between **centralized orchestration** and **distributed intelligence**—and that tension runs straight through the UN, USAID, NATO, and every global bureaucracy that ever declared itself “for humanity.”
 
