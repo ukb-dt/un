@@ -1,1 +1,36 @@
-.,
+- United Nations Environment Program
+   - A scam
+   - Too much science
+   - Many grants
+   - Directed to science, not action
+- Overall United Nations
+   - 60c to the dollar spent on staffing
+   - 40c on proclaimed missions
+   - X% efficiency of missions?
+   - (100-X)% on target
+   - You get this picture
+- America First/Make America Great Again
+   - Withdrawal from WHO
+   - Zero funding for UN
+   - Flows redirected to America
+   - Layoffs in UN should target its American workers
+   - But many more will be affected regardless
+   - China emerging as greatest contributor (and will place more of its people in jobs of leadreship)
+- Taken together (all the above)
+   - Flows of resources
+   - Centrally controlled (ie UN in New York or Geneva)
+   - Locally insensitive to needs because 40c on the dollar is directed to problems
+   - Perhaps similar issue with USAID
+- How to summarize this from UKB-Canon?
+   - Soil
+   - Roots
+   - Trunk
+   - Branches
+   - Canopy/Fruit
+- Households, Firms, Governments, Alliances, Wars
+   - Gradient/Flow problem
+   - Adversarial, Cooperative, Transactional (latter two emerge from default adversarial)
+   - How to view to 10 firms from this point of view? What unites them or distinguishes from the rest?
+   - Should we use similar or different lens for governments and alliances like the UN?
+   - What about NATO?
+   - Very surprised that I'm getting aligned with MAGA on these matters!          
